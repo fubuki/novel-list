@@ -47,6 +47,7 @@
 44.  沒錢修甚麼仙
 45.  二手穿越：大耳賊劉備
 46.  实教，坏了，我成替身了
+47.  Healing at the Academy Convenience Store
 
 
 
